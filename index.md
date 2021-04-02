@@ -1,3 +1,5 @@
 # Welcome to my blog
 
 I'm glad you are here. I plan to talk about ...starting a new journey in your life.  Perhaps you're not where you'd like to be yet, or perhaps you feel you need a change of pace.  Sometimes in life you come to a crossroads and need to make a decision to change your course.  It may be daunting to change courses, especially if you're in a comfortable spot.  But I assure you, if you hesitate on making the change, and choose not to pursue it at all, you may end up regretting it down the line, and living with the question "What If?" for the rest of your life sounds like a difficult thing to live with.  Fortunately there are steps you can take to pursue a new course.  Always remember, in any journey or any great (or minor!) undertaking, you have to start somewhere.  The old cliche Rome wasn't built in a day applies here.  Journeys in life take thousands upon millions of tiny steps people take every day of their lives.  So making a change in your life is no different.
+
+Tnak you.
